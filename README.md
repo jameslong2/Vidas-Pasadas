@@ -28,10 +28,10 @@ Años de sentimientos pasados,</br>
 sobre mi joven cuerpo,</br>
 no es mio,</br>
 sino del alma,</br>
-este conocimiento.
-
-Almas viejas que todavia perduran,
-aprendizajes del pasado,
-experiencias futuras,
-no es eterna el alma,
-pues morira como Buddha.
+este conocimiento.</br>
+</br>
+Almas viejas que todavia perduran,</br>
+aprendizajes del pasado,</br>
+experiencias futuras,</br>
+no es eterna el alma,</br>
+pues morira como Buddha.</br>
